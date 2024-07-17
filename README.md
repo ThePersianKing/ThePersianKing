@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ThePersianKing
 - 👀 I’m interested in love,sex and rock'n roll
-- 🌱 I’m currently learning how to leave the rest of my life
+- 🌱 I’m currently learning how to live the rest of my life
 - 💞️ I’m looking to collaborate on something incredible
 - 📫 How to reach me is a mystery, as I don't know how to reach myself too.
 
